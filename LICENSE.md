@@ -1,4 +1,4 @@
-# 
+# custom Bitdefender Total Security لجهاز الكمبيوتر منفذ هو أفضل Bitdefender Total Security لجهاز الكمبيوتر منفذ مع ماسح الثغرات و المسح المجدول. آمن، موثوق، ومُحَسّن لأقصى أداء.
 
 
 
